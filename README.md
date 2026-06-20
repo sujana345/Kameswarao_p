@@ -1,2 +1,0 @@
-# Sujana
-Kali
